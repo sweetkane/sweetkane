@@ -1,1 +1,1 @@
-https://kanesweet.com/
+https://kanesweet.com
