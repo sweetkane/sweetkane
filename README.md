@@ -1,1 +1,1 @@
-https://kanesweet.com
+Contact: kane@snaxapps.com
