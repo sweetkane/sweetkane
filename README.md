@@ -1,2 +1,2 @@
 # Hi, I'm Kane
-Contact: kane@snaxapps.com
+Contact: kanesweet11@gmail.com
